@@ -1,1 +1,2 @@
 hello ,this is a small project for my pattern practice ,if you are also interested in this thing ,you can also participate in it.
+After so many years passed, I think I should really dig into it but not to play all the time. I am truly trash if I go on in this way.
